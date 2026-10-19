@@ -6,4 +6,4 @@
 
 ## [Colorat digital](https://www.coloringpages-forkids.com/)
 
-## [Puzzle digital](https://www.jigsawplanet.com/Buburuzele0/buburuze)
+## [Puzzle digital](https://www.jigsawplanet.com/Buburuzele0/saptamana-altfel02)
